@@ -1,1 +1,1 @@
-![AtomXCLO](https://github.com/AtomXCLO/.github/blob/main/banner.jpg)
+![AtomXCLO](https://i.imgur.com/acU8vMC.jpg)
